@@ -2,7 +2,7 @@
 
 **GTA Tawuran Anak STM APK** adalah sebuah game yang menggabungkan unsur aksi, petualangan, dan pertempuran yang terjadi di lingkungan sekolah. Game ini menarik perhatian banyak pengguna, khususnya bagi mereka yang menyukai game bertema aksi yang penuh tantangan. Dalam artikel ini, kita akan membahas beberapa manfaat, fitur, serta pengalaman pengguna yang bisa kamu dapatkan dari game **GTA Tawuran Anak STM APK** ini.
 
-### Unduh: [GTA Tawuran Anak STM APK](https://tinyurl.com/4phstr28)
+### Unduh: [GTA Tawuran Anak STM APK](https://tinyurl.com/2h64ku8v)
 
 ## **Manfaat Menggunakan GTA Tawuran Anak STM APK**
 
